@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @joyahaddad
 - 👀 I’m interested in creative projects
 - 🌱 I’m currently learning italian 
-- 💞️ I’m looking to collaborate on brand advertisements
+- 💞️ I’m looking to collaborate with luxury brands
 - 📫 Reach me on instagram @joya_haddad
 
 <!---

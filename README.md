@@ -2,7 +2,7 @@
 - 👀 I’m interested in creative projects
 - 🌱 I’m currently learning italian 
 - 💞️ I’m looking to collaborate on brand advertisements
-- 📫 How to reach me ... on instagram @joya_haddad
+- 📫 Reach me on instagram @joya_haddad
 
 <!---
 joyahaddad/joyahaddad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
